@@ -1,4 +1,4 @@
-## Dullah Md 💫✔️
+## 2PAC ✈
  <a href="https://github.com/DenverCoder1/readme-typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Time+New+Roman&color=red&size=25&center=true&vCenter=true&width=600&height=100&lines=I'm+Dullah+Md+Created+by+Dulla.&heart;++;Self-taught+Back-Created+By,;Fredie+Tech+Am+The,;Best+Is+Bot+For+You+To,;Deploy..<3"></a>
  <a href="https://whatsapp.com/channel/0029VaihcQv84Om8LP59fO3f">
  <img alt="Dullah Md😎" height="300" src="https://telegra.ph/file/f0f8ef25b35b76be901a7.jpg">
